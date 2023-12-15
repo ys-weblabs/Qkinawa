@@ -1,4 +1,3 @@
 - 📫 How to reach me:
-- :new_moon_with_face: VK: /okinawalsn
-- :calling: Telegram: @okinawalsn
-- :envelope: E-mail: okinawalsn@gmail.com
+- :calling: Telegram: @qkinawa
+- :envelope: E-mail: qkinawamain@gmail.com
