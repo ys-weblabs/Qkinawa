@@ -1,3 +1,1 @@
-- 📫 How to reach me:
-- :calling: Telegram: @qkinawa
-- ✉️ E-mail: qkinawamain@gmail.com
+
