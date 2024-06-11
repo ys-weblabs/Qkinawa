@@ -1,1 +1,3 @@
-YS TRC 21
+- 📫 How to reach me:
+- ✒️ Telegram: @qkinawa
+- ✉️ E-mail: qkinawamain@gmail.com
